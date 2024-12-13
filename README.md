@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m a 19 year old software engineer from Australia<br>
+I’m a future billionare<br>
 
 
 ## 🌐 Socials:
